@@ -1,1 +1,1 @@
-# Eletiva-de-F-sica
+# ELETIVA-SUSTENTAVEL-FISICA
